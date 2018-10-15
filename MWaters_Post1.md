@@ -8,3 +8,7 @@ While this principle is common knowledge among academics, even the most adamant 
 Every installment of Turning Pages Turning Heads will feature historical instances of literature causing controversy in the public sphere. (Maybe I will focus on one story, or maybe I will compare similar occurrences. I'll try to mix it up.) Every court case or public controversy about a book is a candidate. These posts will include a recap of events. They will also include editorial sections in which I weigh in on the featured topic. At the end of each post, I will leave links for continued reading on the subject, should you be so inclined to launch your own investigation into, and evaluation of, the sources.
 
 Bookworms tend to view reading as a personal experience, and I get it. A quality page-turner can make one's external circumstances seem to melt away as one connects with the inner world. Introspection and imagination are very personal processes. Individual minds cannot contain something as powerful as literature, though. Its influence does impact society as a whole, and responsible book enthusiasts should be aware of the power that a myriad of personal experiences can have.
+
+
+
+**Never stop having fun with books, but also never forget the power in the pages.**
