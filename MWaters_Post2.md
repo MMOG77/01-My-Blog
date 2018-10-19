@@ -1,7 +1,7 @@
 # N-Word Contemplation: Twain Versus Censorship
 
-*NYT
+* NYT
 
-*Huffington Post
+* Huffington Post
 
-*The Guardian
+* The Guardian
