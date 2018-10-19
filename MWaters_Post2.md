@@ -1,3 +1,5 @@
+![Huckleberry Finn Front Cover](https://github.com/MMOG77/01-My-Blog/blob/master/HuckFinn.webp)
+
 # N-Word Contemplation: Twain Versus Censorship
 
 * [NYT](https://www.nytimes.com/2011/01/07/books/07huck.html)
