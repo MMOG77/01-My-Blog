@@ -3,6 +3,8 @@
 # N-Word Contemplation: Twain Versus Censorship
 > **Note:** The sources I cite in this post include the n-word in its entirety. I will not do so in this blog. (For a full statement of my stance on the issue, see the editorial section of the post.)
 
+**Sources/Further Reading**
+
 * [NYT](https://www.nytimes.com/2011/01/07/books/07huck.html)
 
 * [Huffington Post](https://www.huffingtonpost.com/hetertqebu-walters/educate-dont-censure-the-_b_806601.html)
