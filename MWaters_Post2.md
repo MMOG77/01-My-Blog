@@ -17,7 +17,7 @@ In 2011, Dr. Allen Gribben caused a stir in the literary community when he annou
 
 * [ILA](https://www.ila.org/initiatives/banned-books-week/books-challenged-or-banned-in-2016-by-ro)
 
-* [NYT](https://www.nytimes.com/2011/01/07/books/07huck.html)
+* [New York Times](https://www.nytimes.com/2011/01/07/books/07huck.html)
 
 ***
 > [Image](https://www.amazon.com/Adventures-Huckleberry-Finn-Anniversary-Collection/dp/1948132818/ref=sr_1_3?ie=UTF8&qid=1539910099&sr=8-3&keywords=huckleberry+finn+by+mark+twain) courtesy of Amazon.
