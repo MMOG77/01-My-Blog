@@ -3,9 +3,11 @@
 # N-Word Contemplation: Twain Versus Censorship
 > **Note:** The sources I cite in this post include the n-word in its entirety. I will not do so in this blog. (For a full statement of my stance on the issue, see the editorial section of the post.)
 
-In 2011, Dr. Allen Gribben caused a stir in the literary community when he announced
+In 2011, Dr. Allen Gribben caused a stir in the literary community when he announced that he would publish an altered version of *Huckleberry Finn*, arguably [one of the most controversial books](http://www.ala.org/advocacy/bbooks/100-most-frequently-challenged-books-1990%E2%80%931999) in the history of the United States.
 
 **Sources/Further Reading (Arm yourself with knowledge!)**
+
+* [ALA](http://www.ala.org/advocacy/bbooks/100-most-frequently-challenged-books-1990%E2%80%931999)
 
 * [NYT](https://www.nytimes.com/2011/01/07/books/07huck.html)
 
