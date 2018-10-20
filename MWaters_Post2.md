@@ -5,7 +5,7 @@
 
 In 2011, Dr. Allen Gribben caused a stir in the literary community when he announced that he would publish an altered version of *Huckleberry Finn*, arguably [one of the most controversial books](https://www.ila.org/initiatives/banned-books-week/books-challenged-or-banned-in-2016-by-ro) in the history of the United States. Gribben sought to make the novel more accesible by replacing Twain's [219](https://www.huffingtonpost.com/hetertqebu-walters/educate-dont-censure-the-_b_806601.html) uses of *n&mdash;* with the less-volatile term *slave*. The revised edition met with almost universal disapproval from literary critics.
 
-"[T]he idea of changing the language in the novel in order to boost its popularity," [remarks](https://www.theguardian.com/books/2011/jan/05/huckleberry-finn-edition-censors-n-word) Benedicte Page of The guardian, "is still viewed with bafflement in many quarters." Michiko Kakutani of the New York Times [addresses Gribben's censorship](https://www.nytimes.com/2011/01/07/books/07huck.html) in a more straightforward, confrontational manner:
+"[T]he idea of changing the language in the novel in order to boost its popularity," [remarks](https://www.theguardian.com/books/2011/jan/05/huckleberry-finn-edition-censors-n-word) Benedicte Page of The guardian, "is still viewed with bafflement in many quarters." Michiko Kakutani of the New York Times [addresses Gribben's censorship](https://www.nytimes.com/2011/01/07/books/07huck.html) in a more straightforward, confrontational manner: "Mr. Gribben’s effort to update 'Huckleberry Finn' . . . ratifies the narcissistic contemporary belief that art should be inoffensive and accessible . . . ."
 
 > **Editorial:**
 
