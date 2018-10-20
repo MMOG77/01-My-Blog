@@ -3,7 +3,7 @@
 # N-Word Contemplation: Twain Versus Censorship
 > **Note:** The sources I cite in this post include the n-word in its entirety. I will not do so in this blog. (For a full statement of my stance on the issue, see the editorial section of the post.)
 
-In 2011, Dr. Allen Gribben caused a stir in the literary community when he announced that he would publish an altered version of *Huckleberry Finn*, arguably [one of the most controversial books](https://www.ila.org/initiatives/banned-books-week/books-challenged-or-banned-in-2016-by-ro) in the history of the United States. Gribben sought to make the novel more accesible by replacing Twain's [219] uses of *n&mdash;* with the less-volatile term *slave*. The revised edition met with almost universal disapproval from literary critics.
+In 2011, Dr. Allen Gribben caused a stir in the literary community when he announced that he would publish an altered version of *Huckleberry Finn*, arguably [one of the most controversial books](https://www.ila.org/initiatives/banned-books-week/books-challenged-or-banned-in-2016-by-ro) in the history of the United States. Gribben sought to make the novel more accesible by replacing Twain's [219](https://www.huffingtonpost.com/hetertqebu-walters/educate-dont-censure-the-_b_806601.html) uses of *n&mdash;* with the less-volatile term *slave*. The revised edition met with almost universal disapproval from literary critics.
 
 > **Editorial:**
 
