@@ -7,7 +7,7 @@ In 2011, Dr. Allen Gribben caused a stir in the literary community when he annou
 
 "[T]he idea of changing the language in the novel in order to boost its popularity," [remarks](https://www.theguardian.com/books/2011/jan/05/huckleberry-finn-edition-censors-n-word) Benedicte Page of The guardian, "is still viewed with bafflement in many quarters." Michiko Kakutani of the New York Times [addresses Gribben's censorship](https://www.nytimes.com/2011/01/07/books/07huck.html) in a more straightforward, confrontational manner: "Mr. Gribben’s effort to update 'Huckleberry Finn' . . . ratifies the narcissistic contemporary belief that art should be inoffensive and accessible . . . ."
 
-> **Editorial:**
+> **Editorial:** I believe that *Huckleberry Finn*, as a piece of literary history, should retain its n-words for the sake of posterity; however, I do not approve of the slur in the context of modern-day culture. Kakutani, in the New York Times piece,
 
 **Sources/Further Reading (Arm yourself with knowledge!)**
 
