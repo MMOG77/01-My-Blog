@@ -1,4 +1,4 @@
-![Huckleberry Finn Front Cover](https://github.com/MMOG77/01-My-Blog/blob/master/HuckFinn.webp)
+![Huckleberry Finn Front Cover](https://github.com/MMOG77/01-My-Blog/blob/master/HuckFinner.png)
 
 # N-Word Contemplation: Twain Versus Censorship
 > **Note:** The sources I cite in this post include the n-word in its entirety. I will not do so in this blog. (For a full statement of my stance on the issue, see the editorial section of the post.)
