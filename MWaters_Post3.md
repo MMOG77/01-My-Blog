@@ -6,6 +6,8 @@ Do adolescents and young adults need or deserve their own subcategory of fiction
 
 From a marketing standpoint, any book targeted at teens or pre-teens is classified as young adult (YA) literature. Several genres exist under the umbrella of YA, of course, but the generational divide in narrative preference has drawn some ire from older members of the bookworm community.
 
+**Sources/Further Reading (Arm yourself with knowledge!)**
+
 * [ALA](http://www.ala.org/yalsa/guidelines/whitepapers/yalit)
 * [HuffPost](https://www.huffingtonpost.com/entry/what-ya-gets-wrong-about-teenagers-from-a-teen_us_594a8e4de4b062254f3a5a94)
 
