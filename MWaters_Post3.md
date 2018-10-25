@@ -1,6 +1,6 @@
 ![Percy](https://github.com/MMOG77/01-My-Blog/blob/master/the-lightning-thief-299x416.png)
 
-# Growing Pains for Growing Brains: Evaluating YA Literature
+# Growing Pains for Growing Brains: Evaluating YA Literature [DRAFT]
 
 Do adolescents and young adults need or deserve their own subcategory of fiction? What guidelines do authors need to write responsibly for teens and pre-teens? Books, like many forms of media, appeal to multiple demographics. Wherever there are demographics, however, there is in-fighting among habitual readers of different factions.
 
