@@ -10,6 +10,10 @@ Media critic Lindsay Ellis, parterning with PBS, narrates a [video essay](https:
 
 In 2017, the Huffington Post allowed teenaged intern Vivian Parkin DeRosa to provide an inside perspective on the literary movement. The piece is aptly titled ["I'm A Teenager And I Don't Like Young Adult Novels. Here's Why."](https://www.huffingtonpost.com/entry/what-ya-gets-wrong-about-teenagers-from-a-teen_us_594a8e4de4b062254f3a5a94)
 
+The issue is so significant that the American Library Association issued an official white paper on the merits of YA literature.
+
+> **Editorial:**
+
 **Sources/Further Reading (Arm yourself with knowledge!)**
 
 * [American Library Association/Young Adult Library Services Association](http://www.ala.org/yalsa/guidelines/whitepapers/yalit)
