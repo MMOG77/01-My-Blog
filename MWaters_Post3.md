@@ -11,7 +11,7 @@ Media critic Lindsay Ellis, parterning with PBS, narrates a [video essay](https:
 **Sources/Further Reading (Arm yourself with knowledge!)**
 
 * [American Library Association/Young Adult Library Services Association](http://www.ala.org/yalsa/guidelines/whitepapers/yalit)
-* [HuffPost](https://www.huffingtonpost.com/entry/what-ya-gets-wrong-about-teenagers-from-a-teen_us_594a8e4de4b062254f3a5a94)
+* [Huffington Post](https://www.huffingtonpost.com/entry/what-ya-gets-wrong-about-teenagers-from-a-teen_us_594a8e4de4b062254f3a5a94)
 * [PBS (featuring Lindsay Ellis)](https://www.youtube.com/watch?v=Mn3aKZ8ZVFo)
 
 > [Featured image](http://rickriordan.com/book/the-lightning-thief/) courtesy of [RickRiordan.com](http://rickriordan.com/)
