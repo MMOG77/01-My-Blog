@@ -1,7 +1,7 @@
 ![Blazing Books](https://github.com/MMOG77/01-My-Blog/blob/master/Blazing_Books.jpeg)
 # Up in Flames: Book-Burning Blues
 
-Every avid reader has a pet peeve when it comes to book marring. Some cannot stand to spill beverages on the pages. Some hate to see a tome with water damage. For some, the sight of a dog-eared page can ruin the experience
+Every avid reader has a pet peeve when it comes to book marring. Some cannot stand to spill beverages on the pages. Some hate to see a tome with water damage. For some, the sight of a dog-eared page can ruin the reading experience.
 
 > **Editorial:** Burning a book will not cause the ideas to disappear&mdash;especially not in the digital age.
 
