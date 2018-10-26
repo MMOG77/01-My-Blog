@@ -3,9 +3,7 @@
 
 Every avid reader has a pet peeve when it comes to book marring. Some cannot stand to spill beverages on the pages. Some hate to see a tome with water damage. For some, the sight of a dog-eared page can ruin the reading experience. Now imagine a garbage fire. . . with controversial books instead of garbage.
 
-> **Editorial:** Burning a book will not cause the ideas to cease&mdash;especially not in the digital age.
-
-The beautiful thing about the modernized world is that we have the freedom to test the meddle of beliefs by debating them. Any ideology worth considering can and should stand its ground under multicultural analysis. People of any belief system must fight by winning arguments again and again throughout history because it is impossible to make the other side's beliefs disappear.
+> **Editorial:** Burning a book will not cause the ideas to cease&mdash;especially not in the digital age. The beautiful thing about the modernized world is that we have the freedom to test the meddle of beliefs by debating them. Any ideology worth considering can and should stand its ground under multicultural analysis. People of any belief system must "fight" by winning arguments again and again throughout history; it is impossible to make the other side's beliefs disappear through mere arson.
 
 **Sources/Further Reading (Arm yourself with knowledge!)**
 * [The Guardian](https://www.theguardian.com/books/2010/sep/10/book-burning-quran-history-nazis)
