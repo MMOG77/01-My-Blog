@@ -12,7 +12,7 @@ In 2017, the Huffington Post allowed teenaged intern Vivian Parkin DeRosa to pro
 
 The issue is so significant that the American Library Association issued an official white paper on the merits of YA literature. Ironically, the institution upholds the genre from which the demographic insider (DeRosa) chose to distance herself.
 
-> **Editorial:**
+> **Editorial:** I am admittedly partial to YA literature. Having discovered Rick Riordan's Percy Jackson & the Olympians series in my late teens,
 
 **Sources/Further Reading (Arm yourself with knowledge!)**
 
