@@ -3,7 +3,7 @@
 
 Every avid reader has a pet peeve when it comes to book marring. Some cannot stand to spill beverages on the pages. Some hate to see a tome with water damage. For some, the sight of a dog-eared page can ruin the experience
 
-> **Editorial:** Burning a book will not cause the ideas to disappear----especially not in the Digital Age.
+> **Editorial:** Burning a book will not cause the ideas to disappear&mdash;especially not in the digital age.
 
 **Sources/Further Reading (Arm yourself with knowledge!)**
 * [The Guardian](https://www.theguardian.com/books/2010/sep/10/book-burning-quran-history-nazis)
