@@ -2,7 +2,7 @@
 
 # Growing Pains for Growing Brains: Evaluating YA Literature
 
-Do adolescents and young adults need or deserve their own subcategory of fiction? What guidelines do authors need to write responsibly for teens and pre-teens? Books, like many forms of media, appeal to multiple demographics. Wherever there are demographics, however, there is in-fighting among habitual readers of different factions.
+Do adolescents and young adults need or deserve their own subcategory of fiction? What guidelines do authors need to write responsibly for teens and pre-teens? Books, like many forms of media, appeal to multiple demographics. Wherever there are demographics, however, there are disputes among members of the group and across culture as a whole.
 
 From a marketing standpoint, any book targeted at teens or pre-teens is classified as young adult (YA) literature. Several genres exist under the umbrella of YA, of course, but the generational divide in narrative preference has drawn some ire from older members of the bookworm community.
 
