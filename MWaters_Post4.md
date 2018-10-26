@@ -1,3 +1,4 @@
+![Blazing Books](https://github.com/MMOG77/01-My-Blog/blob/master/Blazing_Books.jpeg)
 # Up in Flames: Book Burning Blues
 
 **Sources/Further Reading (Arm yourself with knowledge!)**
