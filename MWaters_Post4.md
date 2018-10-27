@@ -1,7 +1,7 @@
 ![Blazing Books](https://github.com/MMOG77/01-My-Blog/blob/master/Blazing_Books.jpeg)
 # Up in Flames: Book-Burning Blues
 
-Every avid reader has a pet peeve when it comes to book marring. Some cannot stand to spill beverages on the pages. Some hate to see a tome with water damage. For some, the sight of a dog-eared page can ruin the reading experience. Now imagine a garbage fire. . . with controversial books instead of garbage.
+Every avid reader has a pet peeve when it comes to book marring. Some cannot stand to spill beverages on the pages. Some hate to see a tome with water damage. For some, the sight of a dog-eared page can ruin the reading experience. Now imagine a bonfire. . . with controversial books as kindling.
 
 That act of violent censorship has taken place too many times throughout history in an effort to suppress undesirable ways of thinking. Most notable in modern remembrance are the 1933 Book Burnings. During these assemblies, students of German universities gathered to set flame to piles of literature that the Third Reich had deemed unethical, including every detectable trace of Jewish scholars' work. The United States Holocaust Memorial Musuem's [website](https://www.ushmm.org/collections/bibliography/1933-book-burnings#h16) provides an overview of the events and a list of books for continued research.
 
